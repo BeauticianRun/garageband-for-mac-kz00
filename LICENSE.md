@@ -1,4 +1,4 @@
-# 
+# GarageBand for macOS instant Script: sound-design & reverb offers the most advanced GarageBand for macOS script, with sound-design and reverb. Ideal for professional video editors
 
 
 
